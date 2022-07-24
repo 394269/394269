@@ -7,4 +7,4 @@
 <!---
 394269/394269 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+Currently/0001/85053769-1 (0260) nubank pagamento currently/Itaú/3411016/523530 /currentl 0001/29511601-6/currently/0001/66084385-4y/
